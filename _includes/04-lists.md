@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* Taylor Swift 
+* Coding
+* Loved ones :smile:
